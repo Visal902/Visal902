@@ -6,4 +6,4 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ..
                    
-                    ACU
+                    tiktok.com/@visal3290
