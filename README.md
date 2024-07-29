@@ -6,4 +6,4 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ..
                    
-                    tiktok.com/@visal3290
+           https://t.me/+85LwKRYJ-dIzNTFl
